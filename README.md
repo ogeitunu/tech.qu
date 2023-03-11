@@ -1,1 +1,1 @@
-# tech.qu
+# tech.profile
